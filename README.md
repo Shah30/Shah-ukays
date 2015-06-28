@@ -1,0 +1,2 @@
+# Shah-ukays
+Hidup ku
